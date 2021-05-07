@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 
-I am on family leave until July, if you have any open source projects that need my attention it will just have to wait until I get back. 
+I just brought a +1 into the world 👶 and I am on family leave until June/July 2021. Right now I am tinkering on projects with a very limited availability. If you have any open source projects that need my attention it will just have to wait until I get back or another community member can help.
